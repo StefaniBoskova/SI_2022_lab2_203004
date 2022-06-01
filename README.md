@@ -1,1 +1,1 @@
-# SI_2022_lab2_203004
+# Stefani Boshkova 203004
